@@ -1,4 +1,4 @@
-![Banner](https://imgur.com/a/kIkpvmO)
+![Banner](https://media.discordapp.net/attachments/1012206596769730622/1237002667826610236/frost.png?ex=663a1002&is=6638be82&hm=ae5affb6054c908b8469974bdbbd4552117cc73fde655512b2e07a5d729fe583&=&format=webp&quality=lossless)
 
 **[CLICK HERE FOR THE GAMESERVER LINK](https://gofile.io/d/U8S2MD)**
 
