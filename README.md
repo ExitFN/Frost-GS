@@ -1,4 +1,4 @@
-![Banner](https://imgur.com/a/KTU8Ug7)
+![Banner](https://imgur.com/a/kIkpvmO)
 
 **[CLICK HERE FOR THE GAMESERVER LINK](https://gofile.io/d/U8S2MD)**
 
